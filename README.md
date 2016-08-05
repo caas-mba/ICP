@@ -1,1 +1,0 @@
-# gamific contribution
